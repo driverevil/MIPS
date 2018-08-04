@@ -1,0 +1,1 @@
+# MIPS por amuzaĵo
